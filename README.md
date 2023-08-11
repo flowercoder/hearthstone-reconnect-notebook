@@ -19,6 +19,8 @@ Android
 If you can read Chinese, go to
 https://www.bilibili.com/video/BV1p54y1673z
 
+----------------------------------------------------------------------------------------
+
 paid version (If you dont like it,just ignore it)
 You can go to
 https://www.bilibili.com/read/cv24678727
